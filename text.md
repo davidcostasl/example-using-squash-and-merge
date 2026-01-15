@@ -30,7 +30,7 @@ Your time is limited so do not waste it living someone else's life.
 If life were predictable it would cease to be life and be without flavor.
 alpha sync theta apex node link zenith delta wave
 In order to write about life first you must live it to the fullest.
-The big lesson in life is never be scared of anyone or anything at all.
+queue logic sigma cipher theta stream gamma core beta epsilon cosmic nova
 Sing like no one is listening love like you have never been hurt before.
 Curiosity about life in all of its aspects is still the secret of great people.
 Life is a succession of lessons which must be lived to be understood fully.
