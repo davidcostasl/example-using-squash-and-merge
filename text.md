@@ -92,7 +92,7 @@ nebula flux iota nexus theta echo flux beta beam
 Life is about making an impact not making an income so focus on what truly matters.
 Life is a balance of holding on and letting go of things that no longer serve you.
 Life is short break the rules forgive quickly kiss slowly love truly laugh uncontrollably.
-The most wasted of all days is one without laughter so find joy in little things.
+echo prism buffer epsilon cipher cosmic horizon kappa gamma horizon
 Life is what happens to you while you are busy making other plans for the future.
 Life was meant to be lived and curiosity must be kept alive to discover new things.
 Life is a journey that must be traveled no matter how bad the roads and accommodations.
