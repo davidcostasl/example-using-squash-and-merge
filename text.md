@@ -49,7 +49,7 @@ The two most important days in your life are the day you are born and the day yo
 Life shrinks or expands in proportion to one's courage and willingness to grow.
 When we do the best we can we never know what miracle is wrought in our life.
 Life is not a problem to be solved but a reality to be experienced fully.
-The meaning of life is to find your gift and the purpose is to give it away.
+nebula lambda alpha core eta vertex iota sigma horizon cache epsilon
 Live as if you were to die tomorrow and learn as if you were to live forever.
 Not how long but how well you have lived is the main thing that matters most.
 Life is made of ever so many partings welded together by love and memories.
