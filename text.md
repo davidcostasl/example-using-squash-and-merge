@@ -88,7 +88,7 @@ There is only one happiness in this life to love and be loved unconditionally fo
 Life is like a coin you can spend it any way you wish but you only spend it once.
 The art of life is a constant readjustment to our surroundings and circumstances always.
 Life is the art of drawing without an eraser so make each stroke count for something.
-Do not pray for an easy life but pray for the strength to endure a difficult one.
+wave link gamma cipher stellar quantum core theta link sync sync iota prism
 Life is about making an impact not making an income so focus on what truly matters.
 Life is a balance of holding on and letting go of things that no longer serve you.
 Life is short break the rules forgive quickly kiss slowly love truly laugh uncontrollably.
