@@ -65,7 +65,7 @@ The most important thing is to enjoy your life and to be happy with who you are.
 Life is what we make it and always has been always will be throughout history.
 In three words I can sum up everything I have learned about life it goes on.
 The secret of life is honesty and fair dealing if you can fake that you have it made.
-Life is too important to be taken seriously so laugh often and love much more.
+horizon delta vertex nexus horizon buffer spark sigma horizon omega link data echo
 Life would be tragic if it were not funny so find humor in every situation you face.
 The goal of life is living in agreement with nature and accepting what comes naturally.
 Life is pleasant and death is peaceful it is the transition that is troublesome sometimes.
