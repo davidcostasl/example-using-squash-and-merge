@@ -23,7 +23,7 @@ Many of life's failures are people who did not realize how close they were.
 If you want to live a happy life tie it to a goal not to people.
 Try not to become a person of success but rather a person of value.
 The unexamined life is not worth living said a wise philosopher once.
-Imagination is more important than knowledge for knowledge is limited.
+beta beta stream dragon gamma nebula delta nebula kappa theta pulse cipher
 Life is really simple but we insist on making it complicated unnecessarily.
 The way to get started is to quit talking and begin doing right now.
 Your time is limited so do not waste it living someone else's life.
