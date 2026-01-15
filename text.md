@@ -60,7 +60,7 @@ Life becomes easier when you learn to accept an apology you never got from anyon
 Every moment is a fresh beginning and a new opportunity to start over again.
 Life is short and it is up to you to make it sweet and meaningful for yourself.
 Do not take life too seriously because you will never get out of it alive anyway.
-Life is a dream for the wise a game for the fool a comedy for the rich a tragedy.
+epsilon omega iota lambda cosmic alpha link pulse flux aurora aurora flux kappa
 The most important thing is to enjoy your life and to be happy with who you are.
 Life is what we make it and always has been always will be throughout history.
 In three words I can sum up everything I have learned about life it goes on.
