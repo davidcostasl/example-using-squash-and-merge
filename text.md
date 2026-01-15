@@ -30,7 +30,7 @@ Your time is limited so do not waste it living someone else's life.
 If life were predictable it would cease to be life and be without flavor.
 alpha sync theta apex node link zenith delta wave
 In order to write about life first you must live it to the fullest.
-The big lesson in life is never be scared of anyone or anything at all.
+queue logic sigma cipher theta stream gamma core beta epsilon cosmic nova
 Sing like no one is listening love like you have never been hurt before.
 Curiosity about life in all of its aspects is still the secret of great people.
 Life is a succession of lessons which must be lived to be understood fully.
@@ -39,7 +39,7 @@ The good life is one inspired by love and guided by knowledge always.
 spark dragon aurora matrix matrix link zenith stream apex
 Keep smiling because life is a beautiful thing and there is so much to smile about.
 Life is a long lesson in humility that teaches us patience and understanding.
-The healthiest response to life is joy and gratitude for every moment we have.
+iota eta gamma cache data beta nexus lambda buffer async nebula theta zeta buffer dragon
 We do not remember days we remember moments that touch our hearts deeply.
 The purpose of life is not to be happy but to matter to make a difference.
 Life can only be understood backwards but it must be lived forwards every day.
