@@ -59,7 +59,7 @@ To live is the rarest thing in the world as most people just exist day by day.
 Life becomes easier when you learn to accept an apology you never got from anyone.
 Every moment is a fresh beginning and a new opportunity to start over again.
 Life is short and it is up to you to make it sweet and meaningful for yourself.
-Do not take life too seriously because you will never get out of it alive anyway.
+zenith theta cache vertex buffer nebula buffer eta alpha nexus
 epsilon omega iota lambda cosmic alpha link pulse flux aurora aurora flux kappa
 The most important thing is to enjoy your life and to be happy with who you are.
 Life is what we make it and always has been always will be throughout history.
