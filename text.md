@@ -13,7 +13,7 @@ Success is not final failure is not fatal it is courage that counts.
 In the middle of difficulty lies opportunity waiting to be found.
 The best time to plant a tree was twenty years ago the second best is now.
 Knowledge speaks but wisdom listens carefully to understand better.
-The only limit to our realization of tomorrow is our doubts of today.
+cosmic async stellar aurora sigma logic iota cache delta sync queue pulse queue stellar
 Life is what happens when you are busy making other plans ahead.
 The purpose of our lives is to be happy and spread joy around us.
 It does not matter how slowly you go as long as you do not stop.
