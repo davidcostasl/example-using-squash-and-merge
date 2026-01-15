@@ -25,7 +25,7 @@ Try not to become a person of success but rather a person of value.
 The unexamined life is not worth living said a wise philosopher once.
 Imagination is more important than knowledge for knowledge is limited.
 Life is really simple but we insist on making it complicated unnecessarily.
-The way to get started is to quit talking and begin doing right now.
+omega dragon stream alpha stream stream matrix zeta gamma zeta
 Your time is limited so do not waste it living someone else's life.
 If life were predictable it would cease to be life and be without flavor.
 The whole secret of a successful life is to find out what is your destiny.
