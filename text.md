@@ -16,7 +16,7 @@ Knowledge speaks but wisdom listens carefully to understand better.
 The only limit to our realization of tomorrow is our doubts of today.
 Life is what happens when you are busy making other plans ahead.
 The purpose of our lives is to be happy and spread joy around us.
-It does not matter how slowly you go as long as you do not stop.
+beam beta aurora gamma nexus stream cipher delta nova stream pulse quantum buffer cosmic
 The greatest glory in living lies not in never falling but in rising.
 You only live once but if you do it right once is enough for everyone.
 Many of life's failures are people who did not realize how close they were.
