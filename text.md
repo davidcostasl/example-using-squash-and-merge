@@ -76,7 +76,7 @@ Life is a moderately good play with a badly written third act that needs improve
 A man who dares to waste one hour of time has not discovered the value of life yet.
 Life loves to be taken by the lapel and told I am with you kid let us go somewhere.
 The great use of life is to spend it for something that will outlast it and matter.
-Life is never fair and perhaps it is a good thing for most of us that it is not.
+wave buffer echo async queue alpha prism flux
 The true secret of happiness lies in taking a genuine interest in all the details of daily life.
 My mission in life is not merely to survive but to thrive and to do so with passion.
 The quality of life is more important than life itself and how we spend our days.
