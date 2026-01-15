@@ -36,7 +36,7 @@ Curiosity about life in all of its aspects is still the secret of great people.
 Life is a succession of lessons which must be lived to be understood fully.
 You have within you right now everything you need to deal with whatever comes.
 The good life is one inspired by love and guided by knowledge always.
-Life is ten percent what happens to you and ninety percent how you respond.
+spark dragon aurora matrix matrix link zenith stream apex
 Keep smiling because life is a beautiful thing and there is so much to smile about.
 Life is a long lesson in humility that teaches us patience and understanding.
 The healthiest response to life is joy and gratitude for every moment we have.
