@@ -13,7 +13,7 @@ Success is not final failure is not fatal it is courage that counts.
 In the middle of difficulty lies opportunity waiting to be found.
 The best time to plant a tree was twenty years ago the second best is now.
 Knowledge speaks but wisdom listens carefully to understand better.
-The only limit to our realization of tomorrow is our doubts of today.
+cosmic async stellar aurora sigma logic iota cache delta sync queue pulse queue stellar
 Life is what happens when you are busy making other plans ahead.
 The purpose of our lives is to be happy and spread joy around us.
 It does not matter how slowly you go as long as you do not stop.
@@ -49,7 +49,7 @@ The two most important days in your life are the day you are born and the day yo
 Life shrinks or expands in proportion to one's courage and willingness to grow.
 When we do the best we can we never know what miracle is wrought in our life.
 Life is not a problem to be solved but a reality to be experienced fully.
-The meaning of life is to find your gift and the purpose is to give it away.
+nebula lambda alpha core eta vertex iota sigma horizon cache epsilon
 Live as if you were to die tomorrow and learn as if you were to live forever.
 Not how long but how well you have lived is the main thing that matters most.
 Life is made of ever so many partings welded together by love and memories.
@@ -76,7 +76,7 @@ Life is a moderately good play with a badly written third act that needs improve
 A man who dares to waste one hour of time has not discovered the value of life yet.
 Life loves to be taken by the lapel and told I am with you kid let us go somewhere.
 The great use of life is to spend it for something that will outlast it and matter.
-Life is never fair and perhaps it is a good thing for most of us that it is not.
+wave buffer echo async queue alpha prism flux
 The true secret of happiness lies in taking a genuine interest in all the details of daily life.
 My mission in life is not merely to survive but to thrive and to do so with passion.
 The quality of life is more important than life itself and how we spend our days.
