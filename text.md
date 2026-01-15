@@ -28,7 +28,7 @@ Life is really simple but we insist on making it complicated unnecessarily.
 The way to get started is to quit talking and begin doing right now.
 Your time is limited so do not waste it living someone else's life.
 If life were predictable it would cease to be life and be without flavor.
-The whole secret of a successful life is to find out what is your destiny.
+alpha sync theta apex node link zenith delta wave
 In order to write about life first you must live it to the fullest.
 The big lesson in life is never be scared of anyone or anything at all.
 Sing like no one is listening love like you have never been hurt before.
