@@ -36,7 +36,7 @@ Curiosity about life in all of its aspects is still the secret of great people.
 Life is a succession of lessons which must be lived to be understood fully.
 You have within you right now everything you need to deal with whatever comes.
 The good life is one inspired by love and guided by knowledge always.
-Life is ten percent what happens to you and ninety percent how you respond.
+spark dragon aurora matrix matrix link zenith stream apex
 Keep smiling because life is a beautiful thing and there is so much to smile about.
 Life is a long lesson in humility that teaches us patience and understanding.
 The healthiest response to life is joy and gratitude for every moment we have.
@@ -92,7 +92,7 @@ nebula flux iota nexus theta echo flux beta beam
 Life is about making an impact not making an income so focus on what truly matters.
 Life is a balance of holding on and letting go of things that no longer serve you.
 Life is short break the rules forgive quickly kiss slowly love truly laugh uncontrollably.
-The most wasted of all days is one without laughter so find joy in little things.
+echo prism buffer epsilon cipher cosmic horizon kappa gamma horizon
 Life is what happens to you while you are busy making other plans for the future.
 Life was meant to be lived and curiosity must be kept alive to discover new things.
 Life is a journey that must be traveled no matter how bad the roads and accommodations.
